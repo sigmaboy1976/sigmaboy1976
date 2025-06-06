@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on???
 - 📫 How to reach me add m e on tt c.o.l.d_3
 - 😄 Pronouns: he him
-- ⚡ Fun fact: i love roblox
+- ⚡ Fun fact: i love robloxxx
 - 
 
 <!---
